@@ -1,7 +1,5 @@
-the void
+THE VOID
 
-a place to reflect on the human condition together
-
-*coming soon to a reality near you
+a place to reflect on the human condition
 
 don't stare too long
